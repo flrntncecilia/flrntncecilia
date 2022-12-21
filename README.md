@@ -1,2 +1,1 @@
-currently learning programation
-ceciliaflorentin12@gmail.com
+currently learning
